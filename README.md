@@ -1,0 +1,1 @@
+# Furizanscript1
